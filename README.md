@@ -1,1 +1,2 @@
-Milagros Yupanqui López - 201910511
+Milagros Yupanqui López
+201910511
